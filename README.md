@@ -1,0 +1,1 @@
+# akp-boykot-listesi
